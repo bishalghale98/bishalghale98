@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **bishalghle@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/bishal-ghale/](https://www.linkedin.com/in/bishal-ghale-54432631b/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/bishal-ghale-54432631b/](https://www.linkedin.com/in/bishal-ghale-54432631b/)
 
 - ⚡ Fun fact **Trying to create youtube video**
 
